@@ -1,2 +1,3 @@
-# Adope-Photoshop-2021
-dadadad
+There is a install tutorial
+
+Link: 
